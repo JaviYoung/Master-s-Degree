@@ -4,5 +4,5 @@
 
 &ensp;&ensp;&ensp;In order to enhave / reverse the situation , we should raise our awareness of the importance of  **<u>主题</u>**  while at the same time , the vocal and central authorities , along with the press , are obliged to publicize its significance and necessary . Only in this way , can we embrace a bright future. 
 
-![writing.jpg](https://i.loli.net/2019/12/03/3mXVWu4sGNCDivS.jpg)]
+![writing.jpg](https://i.loli.net/2019/12/03/3mXVWu4sGNCDivS.jpg)
 
