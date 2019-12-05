@@ -26,4 +26,4 @@
 
 联通100M
 
-![CoolTi_2019-11-24-16-03-26.png](https://i.loli.net/2019/12/05/obAZITYzrcOvXWQ.png)
+![CoolTi-2019-12-05.png](https://i.loli.net/2019/12/05/vtRyfOrBxLgsY31.png)
