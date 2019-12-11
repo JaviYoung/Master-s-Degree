@@ -20,4 +20,5 @@ This might be nonsense to others.
 - Archives
   - [Color reactions](https://blog.odriver.cc/color.pdf)
 
+- [Test](https://blog.odriver.cc/ss-test/cu-test)
 
